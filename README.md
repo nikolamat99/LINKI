@@ -1,1 +1,1 @@
-PROJECT PREVIEW: https://nikolamat99.github.io/LINKI/
+PROJECT PREVIEW: https://nikolamat99.github.io/LINKS/
